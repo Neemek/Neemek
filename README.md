@@ -3,7 +3,7 @@ i am a 14(15) year old web developer with 3 years of experience under my belt.
 Im proficient at creating both websites and disord bots, and im currently working on a secret project!
 Heres ten reasons to hire me:
 - Im cool 👍
-- I work more with less
+- I like bananas
 - Im cool 👍
 - Im cool 👍
 - Im cool 👍
