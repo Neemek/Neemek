@@ -1,5 +1,5 @@
 # 👋 Hi, I’m [@Neemek](https://neemek.com/)
-i am a 15 year old web developer with 3 years of experience under my belt.
+i am a 14(15) year old web developer with 3 years of experience under my belt.
 Im proficient at creating both websites and disord bots, and im currently working on a secret project!
 Heres ten reasons to hire me:
 - Im cool 👍
